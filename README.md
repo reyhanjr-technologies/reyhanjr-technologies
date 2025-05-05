@@ -5,3 +5,4 @@
 
 ---
 Thanks for visiting my page! 🎨👧 Let's create something wonderful together! 🌟 🌟
+I was forgot about Reyhan Jr. Cellphones powered by Reyhan Jr. Technologies with features On-Demand ISR by Instantly update content, file contents, and content delivery without redeploying. 🤗
